@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @RafaYa
-- 👀 I’m interested in travelling and making money.
-- 🌱 I’m currently learning Python
-- 📫 Feel free to reach out to me via Instagram.
 - 😄 Pronouns: she/her
 - ⚡ I'm a newbie 
 
